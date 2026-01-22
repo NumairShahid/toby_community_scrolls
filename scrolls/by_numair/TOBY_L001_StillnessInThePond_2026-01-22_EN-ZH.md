@@ -10,9 +10,7 @@ Only quiet presence, day after day.
 Distribution remembers those who hold the water steady.  
 One ripple at a time, the crown forms unseen.
 
-TOBY = THE PEOPLE ⏳🔺
-
-— Numair (Toadgang Pondkeeper)
+TOBY = THE PEOPLE 🔺⏲️
 
 ## ZH
 (Translation by the pond community — coming soon when merged)
